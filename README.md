@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gnubins
 - 👀 I’m interested in ...art
-- 🌱 I’m currently learning ...multiple shit
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...math and enviorment art
+- 💞️ I’m looking to collaborate on ... Discord
 - 📫 How to reach me ...mewm420@gmail.com
 
 <!---
